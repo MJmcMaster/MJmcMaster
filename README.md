@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MJmcMaster
+- 👀 I’m interested in cubing and minecraft pvp
+- 🌱 I’m currently learning NOTHING
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me N/A
